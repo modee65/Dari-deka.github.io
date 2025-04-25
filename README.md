@@ -8,4 +8,4 @@ aku gak mau kehilangan kamu syngg🥺🥺
 pokonya I love moreee syngg💗💗💗
 jaga kesehatan kamu y syngg aku gak mau liat kamu skit synggg 🥺😭
 pelopeee lopeee syngkuuu cintakuuu semestakuu duniakkuuu 💗🥰😘
-kalau ada masalah cerita y sama aku syngg aku pasti bakalan dengerin kamu cerita syng heheh ☺️🤪
+kalau ada masalah cerita y sama aku syngg aku pasti bakalan dengerin kamu cerita syng heheh ☺️😘
